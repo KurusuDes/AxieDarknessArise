@@ -16,4 +16,4 @@ This project was made with great dedication, and we hope you enjoy playing it as
 Happy gaming! 🎮✨  
 
 ---
-Made with ❤️ by the Axie Darkness Arise Team
+Made with ❤️ by the TeaParty Team
